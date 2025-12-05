@@ -9,4 +9,5 @@ HƯỚNG DẪN CHÈN THAM SỐ VÀO CODE NẠP CHO THIẾT BỊ
 LẤY KINH - VĨ ĐỘ TẠI GOOGLEMAPS
 ____________________________________________________
 
-SẢN PHẨM CỦA TRƯỜNG THPT TÁNH LINH, THÔNG TIN LH 0364722708_0777595583 (DUY LĨNH)
+Tanh Linh HS - Lam Dong_VN
+
